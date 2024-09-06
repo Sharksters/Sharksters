@@ -3,7 +3,7 @@
 <br><br><b>"Kiss me you animal..."</b>
 <br>
 <br><br><b>♡ Navi</b>/Sharkie | She(<a href="https://en.pronouns.page/@Navis">/</a>)They | Adult
-<br><b>♡ whisper to interact</b>, Usually afk / oof-tab playing something
+<br><b>♡ whisper to interact</b>, Usually afk / off-tab playing something
 <br>♡ Feel free to int! Often with  <a href="https://rentry.co/NlGHTMAREPARASITE">Rhys</a> or <a href="https://rentry.co/creature-of-indiscernible-origin">Oceavnn</a>
 <br><b>♡ Im a anxious person when i dont know you, i probably wont int first
 <br>
