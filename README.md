@@ -5,7 +5,7 @@
 <br><img src="https://64.media.tumblr.com/8a0bb77f93ceadb4f58c5044398ccf97/676a6cfcab52675e-1b/s2048x3072/2cd54586aab02eafbebe01aaea0555e3e03f08f6.pnj" width="600px">
 <br><br><b>♡ Navi</b>/Sharkie | She(<a href="https://en.pronouns.page/@Navis">/</a>)They | Adult
 <br><b>♡ whisper to interact</b>, Usually afk / off-tab playing something
-<br>♡ Feel free to int! Often with  <a href="https://rentry.co/NlGHTMAREPARASITE">Rhys</a> or <a href="https://rentry.co/creature-of-indiscernible-origin">Oceavnn</a>
+<br>♡ Feel free to int! Often with  <a href="https://github.com/RIDLEYISM">Rhys</a> or <a href="https://github.com/Oceavnn">Oceavnn</a>
 <br><b>♡ Im a anxious person when i dont know you, i probably wont int first
 <br>
 <br><img src="https://64.media.tumblr.com/8a0bb77f93ceadb4f58c5044398ccf97/676a6cfcab52675e-1b/s2048x3072/2cd54586aab02eafbebe01aaea0555e3e03f08f6.pnj" width="600px">
