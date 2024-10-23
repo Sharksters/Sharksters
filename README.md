@@ -9,7 +9,7 @@
 <br><b>♡ Im a anxious person when i dont know you, i probably wont int first
 <bnr>
 <br>
-<br><b>♡ DO NOT flirt with me. I am married irl. I will simply block you if you flirt with me. </b></bnr>
+<br><br><b>♡ DO NOT flirt with me. I am married irl. I will simply block you if you flirt with me. </b>
 <br>
 <br><img src="https://64.media.tumblr.com/8a0bb77f93ceadb4f58c5044398ccf97/676a6cfcab52675e-1b/s2048x3072/2cd54586aab02eafbebe01aaea0555e3e03f08f6.pnj" width="600px">
 <br>
