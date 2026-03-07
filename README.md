@@ -8,6 +8,7 @@
 <br>♡ Feel free to int! Often with  <a href="https://github.com/OFFICERCHAMBERS">Rhys</a> or <a href="https://github.com/ASS1MILATE">Blue</a>
 <br><b>♡ Im a anxious person when i dont know you, i probably wont int first
 <bnr>
+  <br><b>Someone make me a strawpage or teach me how to everytime i try i fail its pain.
 <br>
 <br><br><b>♡ DO NOT flirt with me. I am married irl. I will simply block you if you flirt with me. </b>
 <br>
