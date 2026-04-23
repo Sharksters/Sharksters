@@ -7,6 +7,7 @@
 <br><b>♡ whisper to interact</b>, Usually afk / off-tab playing something
 <br>♡ Feel free to int! Often with  <a href="https://github.com/OFFICERCHAMBERS">Rhys</a> or <a href="https://github.com/ASS1MILATE">Blue</a>
 <br><b>♡ Im a anxious person when i dont know you, i probably wont int first
+  <br>
 <br><b>♡ I will insert myself in convos, this isnt to be annoying im just autistic and dont know how to befriend people LOL..i try i try (lmk if it annoys you!!)
 <br>
   <br><b>♡ Someone make me a strawpage or teach me how to everytime i try i fail its pain.
