@@ -1,6 +1,6 @@
 <p align="center">
 <img src="https://i.imgur.com/DhtBgS2.gif" width="600px">
-<br><br><b>"Eye for an eye says you owe me a debt..."</b>
+<br><br><b>"All i ever wanted all i ever needed..."</b>
 <br>
 <br><img src="https://64.media.tumblr.com/8a0bb77f93ceadb4f58c5044398ccf97/676a6cfcab52675e-1b/s2048x3072/2cd54586aab02eafbebe01aaea0555e3e03f08f6.pnj" width="600px">
 <br><br><b>♡ Navi</b>/Sharkie | She(<a href="https://en.pronouns.page/@Navis">/</a>)Her | Adult
@@ -22,7 +22,7 @@
   ♡ <a href="https://artfight.net/~Wolfies">Artfight!!</a> Please attack me i need art of my sillies!!!!<br>
 <br><img src="https://64.media.tumblr.com/8a0bb77f93ceadb4f58c5044398ccf97/676a6cfcab52675e-1b/s2048x3072/2cd54586aab02eafbebe01aaea0555e3e03f08f6.pnj" width="600px">
 <br>
-<br><b>"...blood demands blood, gonna get my hands wet "</b>
+<br><b>"...is here in my arms"</b>
 <br><img src="https://i.pinimg.com/originals/c7/c3/04/c7c3043859d562dce54db67a53a5f4aa.gif" width="600px">
 </p><br>
 <br>
