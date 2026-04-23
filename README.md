@@ -7,6 +7,7 @@
 <br><b>♡ whisper to interact</b>, Usually afk / off-tab playing something
 <br>♡ Feel free to int! Often with  <a href="https://github.com/OFFICERCHAMBERS">Rhys</a> or <a href="https://github.com/ASS1MILATE">Blue</a>
 <br><b>♡ Im a anxious person when i dont know you, i probably wont int first
+<br><b>♡ I will insert myself in convos, this isnt to be annoying im just autistic and dont know how to befriend people LOL..i try i try (lmk if it annoys you!!)
 <br>
   <br><b>♡ Someone make me a strawpage or teach me how to everytime i try i fail its pain.
 <br>
@@ -16,7 +17,7 @@
 <br>
   <br>♡ <a href="https://rentry.co/rottinginbed">Rentry</a> Read if youd like!<br>
   ♡ <a href="https://rotting.atabook.org/">Atabook</a> Go comment<br>
-  ♡ <a href="https://rottin.straw.page">TEMP strawpage</a> Feel free to write + draw!!<br>
+  ♡ <a href="https://rottin.straw.page">TEMP strawpage</a> Feel free to write + draw!!..ill finish my actual one one of these years<br>
   ♡ <a href="https://artfight.net/~Wolfies">Artfight!!</a> Please attack me i need art of my sillies!!!!<br>
 <br><img src="https://64.media.tumblr.com/8a0bb77f93ceadb4f58c5044398ccf97/676a6cfcab52675e-1b/s2048x3072/2cd54586aab02eafbebe01aaea0555e3e03f08f6.pnj" width="600px">
 <br>
