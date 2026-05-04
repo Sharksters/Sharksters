@@ -3,7 +3,7 @@
 <br><br><b>"All i ever wanted all i ever needed..."</b>
 <br>
 <br><img src="https://64.media.tumblr.com/8a0bb77f93ceadb4f58c5044398ccf97/676a6cfcab52675e-1b/s2048x3072/2cd54586aab02eafbebe01aaea0555e3e03f08f6.pnj" width="600px">
-<br><br><b>♡ Navi</b>/Sharkie | She(<a href="https://en.pronouns.page/@Navis">/</a>)Her | Adult
+<br><br><b>♡ Sharkie</b>/Navi | She(<a href="https://en.pronouns.page/@Navis">/</a>)Her | Adult
 <br><b>♡ whisper to interact</b>, Usually afk / off-tab playing something
 <br>♡ Feel free to int! Often with  <a href="https://github.com/OFWHITACRE">Rhys</a>, <a href="https://github.com/ASS1MILATE">Blue</a> or <a href="https://github.com/RUINHATRED">Issac</a>
 <br><b>♡ Im a anxious person when i dont know you, i probably wont int first
