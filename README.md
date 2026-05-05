@@ -16,7 +16,7 @@
 <br>
 <br><img src="https://64.media.tumblr.com/8a0bb77f93ceadb4f58c5044398ccf97/676a6cfcab52675e-1b/s2048x3072/2cd54586aab02eafbebe01aaea0555e3e03f08f6.pnj" width="600px">
 <br>
-  <br>♡ <a href="https://rentry.co/rottinginbed">Rentry</a> <a href="https://rotting.atabook.org/">Atabook</a> <a href="https://rottin.straw.page">TEMP strawpage</a> Feel free to write + draw!!<br> <a href="https://artfight.net/~Wolfies">Artfight!!</a> Please attack me i need art of my sillies!!!!<br>
+  <br>♡ <a href="https://rentry.co/rottinginbed">Rentry</a> , <a href="https://rotting.atabook.org/">Atabook</a> , <a href="https://rottin.straw.page">TEMP strawpage</a> Feel free to write + draw!!<br> <a href="https://artfight.net/~Wolfies">Artfight!!</a> Please attack me i need art of my sillies!!!!<br>
 <br><img src="https://64.media.tumblr.com/8a0bb77f93ceadb4f58c5044398ccf97/676a6cfcab52675e-1b/s2048x3072/2cd54586aab02eafbebe01aaea0555e3e03f08f6.pnj" width="600px">
 <br>
 <br><b>"...is here in my arms"</b>
