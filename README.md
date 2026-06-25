@@ -5,7 +5,7 @@
 <br><img src="https://64.media.tumblr.com/8a0bb77f93ceadb4f58c5044398ccf97/676a6cfcab52675e-1b/s2048x3072/2cd54586aab02eafbebe01aaea0555e3e03f08f6.pnj" width="600px">
 <br><br><b>♡ Sharkie</b>/Navi | She(<a href="https://en.pronouns.page/@Navis">/</a>)Her | Adult
 <br><b>♡ whisper to interact</b>, Usually afk / off-tab playing something
-<br>♡ Feel free to int! Often with  <a href="https://github.com/OFWHITACRE">Rhys</a>, <a href="https://github.com/ASS1MILATE">Blue</a> or <a href="https://github.com/NULLSCAPING">Issac</a>
+<br>♡ Feel free to int! Often with  <a href="https://github.com/OFWHITACRE">Rhys</a>, <a href="https://github.com/ASS1MILATE">Blue</a>, <a href="https://github.com/NULLSCAPING">Issac</a> or <a href="https://github.com/Batsick">Martin</a> 
 <br><b>♡ Im a anxious person when i dont know you, i probably wont int first
   <br>
 <br><b>♡ I will insert myself in convos, this isnt to be annoying im just autistic and dont know how to befriend people LOL..i try i try (lmk if it annoys you!!)
